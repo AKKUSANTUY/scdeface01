@@ -1,0 +1,2 @@
+# AKKUSANTUY.github.io
+mantan
